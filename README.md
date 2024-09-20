@@ -6,4 +6,4 @@
 - passion for food & bev, cpg, and consulting (private & public)! 
 
 ## projects
-Check them out!!
+check them out!!
