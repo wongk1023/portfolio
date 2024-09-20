@@ -7,3 +7,6 @@
 
 ## projects
 check them out!!
+
+## contact
+reach out at [kwong54@illinois.edu](mailto:kwong54@illinois.edu)
